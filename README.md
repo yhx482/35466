@@ -38,4 +38,4 @@
 本站致力于打造一个稳定、快速、无广告干扰的日本AV免费资源站，持续每日更新新番资源与女优系列内容，欢迎收藏本页，随时获取第一手免费番号内容。
 
 你值得信赖的第一选择。
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/yhx482/35466 ）</span>
